@@ -1,1 +1,1 @@
-https://best-look.github.io/
+https://math-crossword.github.io/
